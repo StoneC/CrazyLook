@@ -1,5 +1,5 @@
-CrazyLook����
+﻿CrazyLook由来
 
-��һЩ������Ҫ��ϵ����һЩ��Ϣ��Ҫ��������һЩ������Ҫ��¼
+有一些朋友需要联系，有一些信息需要交流，有一些经历需要记录
 
-ĳ�������CrazyLook��
+某天回来，CrazyLook！
